@@ -2,7 +2,7 @@
 
 ## 🔭 About me:
 - Prior Internist 
-- Speak Mongolian, English, Russian and German
+- Can speak in Mongolian, English, Russian and German
 - In love with fitness and HIIT workouts
 - Enjoy playing table tennis and badminton
 - Love learning about people, especially about their feelings and mindsets
