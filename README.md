@@ -1,6 +1,7 @@
 ## Hi there 👋
 
 ## 🔭 About me:
+- Fullstack developer
 - Prior Internist 
 - Can speak in Mongolian, English, Russian and German
 - In love with fitness and HIIT workouts
