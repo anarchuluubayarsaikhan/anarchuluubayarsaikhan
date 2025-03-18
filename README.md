@@ -4,7 +4,7 @@
 - Fullstack developer
 - Prior Internist 
 - Can speak in Mongolian, English, Russian and German
-- Quick and logical thinker
+- Quick and logical thinker, INTJ
 - Addicted to the process of solving problems
 - In love with fitness and HIIT workouts
 - Enjoy playing table tennis and badminton
